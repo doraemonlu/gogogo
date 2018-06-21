@@ -1,1 +1,1 @@
-Something new and happy
+Something new and happy.
